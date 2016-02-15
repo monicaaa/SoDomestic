@@ -5,7 +5,7 @@ permalink: /details/
 ---
 We are so excited to celebrate our wedding day with our immediate families! We hope this trip to be a relaxed and fun time for our families to get to know each other. We truly appreciate everybody for flying long distances to Canada to join us as we tie the knot.
 
-### Getting and Staying Here
+### Getting & Staying Here
 
 We have reserved the entire Casa Bianca house for Tuesday and Wednesday night so that our guests don't have to worry about accommodations. The venue sits across from the magnificent Parc du Mont-Royal (Mount Royal Park). Please enjoy the view and take advantage of the beautiful scenery. There are also two parking spots available on the premises. While not necessary, if you choose to rent a car during your stay, please let us know so we can make sure the parking space will be available. 
 
