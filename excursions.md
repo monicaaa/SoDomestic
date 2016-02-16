@@ -3,7 +3,7 @@ layout: page
 title: Excursions
 permalink: /excursions/
 ---
-If you choose to arrive before Tuesday or stay after Wednesday, the Casa Bianca may have available rooms for you to extend your stay. If there is enough interest, we might plan a Quebec City trip immediately after the wedding.
+If you choose to arrive before Tuesday or stay after Wednesday, the Casa Bianca may have available rooms for you to extend your stay. If there is enough interest (there certainly is!), we will plan a Quebec City trip after the wedding.
 
 There is also so much to see, eat, and do in Montreal! These are our recommendations:
 
