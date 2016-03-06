@@ -9,3 +9,5 @@ What we want most for our wedding is to have our families together on our big da
 ![Indoor plants](/img/flowers.png "Indoor plants")
 
 ![Living room](/img/living.png "Living room")
+
+![Living room](/img/snow.png "Snow day")
